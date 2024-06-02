@@ -39,4 +39,3 @@ Here are some of my top projects that showcase my skills and interests:
 
 ---
 
-⭐️ From [Suryatejakalapala](https://github.com/Suryatejakalapala)
